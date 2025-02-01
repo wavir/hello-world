@@ -1,2 +1,5 @@
 # hello-world
-A Hello World Repository
+A Hello World Repository. (⁎⁍̴̛ᴗ⁍̴̛⁎)
+
+> [!TIP]  
+> 🦄 🐰 🌸 🍓 🍦 🍭 🎀
